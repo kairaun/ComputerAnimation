@@ -4,7 +4,7 @@
 
 負責掌鏡部分  
 
-[Link](https://drive.google.com/drive/folders/1Jpa0G7_nrUCASu7VlAi4tikFe0pyGgAT?usp=sharing)  
+[Link to download](https://drive.google.com/drive/folders/1Jpa0G7_nrUCASu7VlAi4tikFe0pyGgAT?usp=sharing)  
 
 Click image to watch  
 
