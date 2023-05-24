@@ -4,6 +4,8 @@
 
 # ComputerAnimationFinalProject  
 
+指導教授：謝東儒  
+
 電腦動畫課程的期末專題製作  
 
 負責掌鏡部分  
